@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-If you'd like to say thatnks, i'd appreciate any donation to:
+If you'd like to say thanks, i'd appreciate any donation to:
 
 BTC `12znTocLytrrYhQT4AJVeJdR8KTULWbKb7`  
 BTC Cash `qq7w48d6s3rddgxshl6ae48k7c5jyck76crvppqenn`  
